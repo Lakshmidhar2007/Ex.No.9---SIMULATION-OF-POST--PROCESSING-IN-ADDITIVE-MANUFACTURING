@@ -50,6 +50,10 @@
 
 ![WhatsApp Image 2024-12-04 at 11 29 37_0f1cb7d5](https://github.com/user-attachments/assets/2c7d9cda-2118-4fa1-ae09-74e8146f9d58)
 
+## OUTPUT
+![Screenshot 2024-12-04 113947](https://github.com/user-attachments/assets/1e21591f-7a74-4ced-8db8-bedb2684795e)
+![Screenshot 2024-12-04 114019](https://github.com/user-attachments/assets/3d9222e4-e527-4303-a36c-d0d6b41f6c75)
+![Screenshot 2024-12-04 114039](https://github.com/user-attachments/assets/7e40f5fd-4c6d-410a-89e2-0571e7a0f6c0)
 
 
 
